@@ -221,4 +221,4 @@ Cross Fire is offered as a full free version with all features and updates inclu
 Download Cross Fire today and immerse yourself in the action-packed world of online FPS gaming!
 
 ---
-**Last updated:** 2026-11-06 19:46:39 UTC
+**Last updated:** 2026-11-06 23:53:41 UTC
